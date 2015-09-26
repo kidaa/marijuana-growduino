@@ -1,0 +1,1 @@
+This project is created to make the growing of homegrown hemp easier to the average individual.
